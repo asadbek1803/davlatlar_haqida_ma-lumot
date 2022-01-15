@@ -1,0 +1,1 @@
+# davlatlar_haqida_ma-lumot
